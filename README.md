@@ -1,5 +1,5 @@
-Indonesia
-Haii gan saya ManZ Jangan Lupa Download Ya
+Hello Bro Im Scripter beginner
 
-Inggris
-Halo Bro Im ManZ Don't forget to download it
+
+
+
